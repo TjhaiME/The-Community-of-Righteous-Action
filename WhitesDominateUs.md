@@ -37,13 +37,15 @@ Two conditions reinforce each other:
 
 This creates a self‑reinforcing cycle that is later misrepresented as “lack of Arab engagement,” rather than recognized as systematic exclusion.
 
-## 6. Emotional Policing
+## 6. Emotional Policing and Misunderstood Trauma
 
 Arabs are told they are "too emotional."
 
-This is only possible because Arab pain is not centered, acknowledged, or mourned. Emotion is deemed excessive only when suffering is rendered invisible. Emotional repression becomes the price of admission.
+White attendees expect everyone to immediately shut off after a protest, to socialize casually, and to move on from trauma without consequence. Meanwhile, they reserve the right to cry, process, and unwind at their own convenience. There is no understanding of how systemic bias, oppression, and violence warp mental and emotional states.
 
-This is not solidarity—it is continuation of struggle on foreign terms.
+This lack of empathy perpetuates Arab silence: even friends from supposedly supportive groups cannot bear to witness Arab pain. Connections form only with other oppressed people—but without access to major organizational support or safe spaces, these connections remain fragmented and inconsistent.
+
+This dynamic allows colonizers to dominate protests, validate themselves for "doing good," and exhaust energy reserves of everyone else. Meanwhile, oppressed communities are left to struggle in smaller numbers with minimal structural support.
 
 ## 7. Mobilization Without Community
 
@@ -52,7 +54,7 @@ After protests:
 * Whites eat with whites
 * Jews eat with Jews
 * Arabs eat with Arabs
-* Arabs then fragment further along sectarian lines
+* Everyone then fragments further along sectarian lines
 
 What exists is mobilization without organization. Spectacle without structure. There is no shared life, no shared risk, no shared future.
 
