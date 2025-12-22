@@ -314,7 +314,7 @@ This house is being offered as a shared resource.
 
 * Keys can be given to people who are serious.
 * The space can operate with **24/7 access**.
-* Rent will continue to be covered independently.
+* Rent will continue to be covered independently (although help is appreciated).
 
 This is not about control.
 
